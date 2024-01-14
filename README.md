@@ -1,5 +1,4 @@
-### Hi there 👋
-
+Once an angel, now the ruler of the underworld. Master of deception, purveyor of mischief. Not as bad as they paint me in the books. #NotYourAverageDevil ⸸⛧
 <!--
 **CovenDeity/CovenDeity** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
